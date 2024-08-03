@@ -15,3 +15,4 @@
 - [7/31/2024 4:43 PM](https://drive.google.com/file/d/1xTC6HkftpOr48WjIZ15OgDtHDkieZCXd/view?usp=sharing)
 - [7/31/2024 10:00 PM](https://drive.google.com/file/d/1Liurm29oR-oqyx1CYalOi9bvHDSZLC0b/view?usp=sharing)
 - [8/2/2024 9:43 PM](https://drive.google.com/file/d/1Pi6QJAxeeVPZu9IV8iJT-_V3D9RymzqB/view?usp=sharing)
+- [8/3/2024 11:00 AM](https://drive.google.com/file/d/1yrm7m-ofDXiw5Xzt2N4St0HHc0hJ3pPV/view?usp=sharing)

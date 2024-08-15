@@ -31,3 +31,7 @@
 - [8/9/2024 12:40 PM](https://drive.google.com/file/d/18lmRPJv2hP3ds_wzdxNCQWe9EYp6Fj2T/view?usp=sharing)
 - [8/9/2024 2:09 PM](https://drive.google.com/file/d/1Oxh5gNiFeV5rB_gW7MSWZPIcrj3ePRaV/view?usp=sharing)
 - [8/10/2024 11:47 PM](https://drive.google.com/file/d/1bFQ6Ieh9oTNM8oI7jhoAZ3c2-En7pSJM/view?usp=sharing)
+
+Final drawing:
+
+![Screenshot 2024-08-15 154255](https://github.com/user-attachments/assets/bedabcd7-df7d-42b1-bd0d-40323d003163)
